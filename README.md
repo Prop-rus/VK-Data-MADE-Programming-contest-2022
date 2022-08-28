@@ -1,0 +1,1 @@
+# VK-Data-MADE-Programming-contest-2022
